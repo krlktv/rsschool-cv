@@ -1,7 +1,7 @@
 # Kirill Kotov
 
 Located in **Minsk, Belarus**  
-**+375 29 29-44-666  
+**+375292944666  
 [krlktv@mail.ru](mailto:krlktv@mail.ru)**
 
 github **[krlktv](https://github.com/krlktv)**
